@@ -1,2 +1,2 @@
 # PROPIEDADES
-El fin, es el principio.!
+El fin, es solo el principio.!
